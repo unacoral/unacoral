@@ -7,5 +7,5 @@ no dni, feel free to copy/take inspo
 
 <p align="center"
 
-![boiii](https://i.postimg.cc/Njrt4yhb/IMG_2599.gif)
+![boiii](https://pixelsafari.neocities.org/dividers/more/ducks.gif)
 
