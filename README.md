@@ -3,7 +3,7 @@ no dni, feel free to copy/take inspo
 </p>
 <p align="center"
   
-[ atabook ](https://toxicyaoi.atabook.org) ✿ [ about ](https://luciferlicker.carrd.co) 
+[ atabook ](https://toxicyaoi.atabook.org) ✿ [ about ](https://rentry.co/lejla) 
 
 <p align="center"
 
