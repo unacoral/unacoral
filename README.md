@@ -1,4 +1,4 @@
-<p align="center"> 🌸 unacoral ♡ she/her ♡ 18 ♡ bosnian<br/>
+<p align="center"> 🌸 lejla ♡ she/her ♡ 18 ♡ bosnian<br/>
 no dni, feel free to copy/take inspo
 </p>
 <p align="center"
