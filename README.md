@@ -1,9 +1,9 @@
-<p align="center"> 🌸 lejla ♡ she/her ♡ 18 ♡ bosnian<br/>
+<p align="center"> 🌸 meffy ♡ she/her ♡ 18 ♡ bosnian<br/>
 no dni, feel free to copy/take inspo
 </p>
 <p align="center"
   
-[ atabook ](https://toxicyaoi.atabook.org) ✿ [ about ](https://rentry.co/lejla) 
+[ atabook ](https://toxicyaoi.atabook.org) ✿ [ about ](https://zqj.carrd.co) 
 
 <p align="center"
 
