@@ -3,7 +3,7 @@ no dni, feel free to copy/take inspo
 </p>
 <p align="center"
   
-[ atabook ](https://toxicyaoi.atabook.org) ✿ [ about ](https://zqj.carrd.co) 
+[ atabook ](https://toxicyaoi.atabook.org) ✿
 
 <p align="center"
 
