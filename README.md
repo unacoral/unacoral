@@ -1,4 +1,4 @@
-<p align="center"> 🌸 meffy ♡ she/her ♡ 18 ♡ bosnian<br/>
+<p align="center"> 🌸 Lejla ♡ she/her ♡ 18 ♡ bosnian<br/>
 no dni, feel free to copy/take inspo
 </p>
 <p align="center"
